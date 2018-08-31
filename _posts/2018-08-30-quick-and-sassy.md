@@ -26,6 +26,8 @@ Fear no more!
 
 Below I have answered the most common questions about bees. Bee nerds and normal people rejoice - now nobody has to talk about anything! 
 
+# Coming Soon...
+
 ### 1. Why are the bees dying?
 ### 2. What's that colony collapse disorder?
 ### 3. Do you get stung a lot?
